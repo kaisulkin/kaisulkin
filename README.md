@@ -14,4 +14,6 @@ I'm passionate about startups and building products that solve real operational 
 - **Built for Operators** — Designed so revenue managers and GMs can act on insights instantly, not wait on analyst teams
 
 ## Connect
+[LinkedIn](https://www.linkedin.com/in/kai-sulkin-9a50b4168/)
+
 💬 Building in hospitality AI — always happy to connect. Reach out anytime.
